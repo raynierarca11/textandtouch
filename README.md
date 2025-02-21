@@ -13,4 +13,6 @@ up skill and enjoy the present
 
 enjoy the present and be productive 
 
-let things be
+let things be..
+
+.
