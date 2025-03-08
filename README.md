@@ -7,7 +7,7 @@ and enjoy life
 
 another day, another
 
-another day, another to conquer the day.
+another day, another to conquer the day.dsdsd
 
 up skill and enjoy the present
 
