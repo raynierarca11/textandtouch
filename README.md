@@ -16,6 +16,6 @@ enjoy the present and be productive
 let things be..
 
 helo
-.
+. overwhelming job and position. vlan. networking and repair
 
 .
