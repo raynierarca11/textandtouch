@@ -3,7 +3,7 @@ text
 
 getaway
 
-and enjoy life
+and enjoy lifeeawe
 
 another day, another
 
