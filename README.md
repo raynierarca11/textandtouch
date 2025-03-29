@@ -6,7 +6,7 @@ getaway
 and enjoy lifeeawe
 
 another day, another
-
+e
 another day, another to conquer the day.dsdsde
 
 up skill and enjoy the present
