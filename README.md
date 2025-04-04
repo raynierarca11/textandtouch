@@ -9,7 +9,7 @@ another day, another
 e
 another day, another to conquer the day.dsdsde
 e
-up skill and enjoy the present
+up skill and enjoy the presentd
 
 enjoy the present and be productive 
 
