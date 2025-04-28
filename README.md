@@ -5,7 +5,7 @@ getaway
 sds
 and enjoy lifeeawe.
 s
-another day, another
+another day, another.
 e
 another day, another to conquer the day.dsdsde
 eesds
