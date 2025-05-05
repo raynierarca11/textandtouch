@@ -1,7 +1,7 @@
 # textandtouch
 text
 
-getaway
+getaway..
 sds...
 and enjoy lifeeawe..........,..,.,
 s..
