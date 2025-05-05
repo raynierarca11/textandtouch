@@ -3,7 +3,7 @@ text
 
 getaway..
 sds...
-and enjoy lifeeawe..........,..,.,
+and enjoy lifeeawe..........,..,.,.
 s..
 another day, another.
 e..
