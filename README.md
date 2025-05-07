@@ -4,7 +4,7 @@ text
 getaway..
 sds....,.,
 and enjoy lifeeawe..........,..,.,.
-s..
+s....
 another day, another...
 e..
 another day, another to conquer the day.dsdsde.
